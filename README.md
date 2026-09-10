@@ -46,6 +46,10 @@ non ciò che piacerebbe a me scrivere.
 
 Non ci resta che provare… vediamo che succede. A presto!
 
+---
+
+*Pubblicato in Idee e contrassegnato come helloword, idea.*
+
 ## Commenti
 
 *Claudio, 7 marzo 2013*
