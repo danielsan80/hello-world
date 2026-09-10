@@ -45,3 +45,9 @@ Insomma, cercherò attraverso questo blog di dire ciò che potrebbe essere inter
 non ciò che piacerebbe a me scrivere.
 
 Non ci resta che provare… vediamo che succede. A presto!
+
+## Commenti
+
+*Claudio, 7 marzo 2013*
+
+> In bocca al lupo.
